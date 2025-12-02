@@ -1,4 +1,18 @@
-## Hi there 👋
+Anon-Mutsumi here, looking for cybersecurity/software engineering opportunities in the United States
+
+I want to share passion projects that I feel are too awkward to share in my actual name
+
+**Interests**
+
+- Manga
+- Anime
+- Chess
+- Shogi
+- Go (game)
+- Bass guitar
+- Video games
+
+I hope you enjoy looking through the profile of a fan of BanG Dream!
 
 <!--
 **Anon-Mutsumi/Anon-Mutsumi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
